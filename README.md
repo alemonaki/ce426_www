@@ -1,1 +1,1 @@
-World Wide Wed Technologies. Uth
+World Wide Web Technologies. Uth
